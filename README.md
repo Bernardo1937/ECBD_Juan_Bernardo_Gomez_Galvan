@@ -1,1 +1,0 @@
-# ECBD_Juan_Bernardo_Gomez_Galvan
